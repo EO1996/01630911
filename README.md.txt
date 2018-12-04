@@ -31,3 +31,4 @@ Seit 1918 gehört der Ort zum Bundesland Oberösterreich. Nach dem Anschluss Öster
 
 
 
+![Wappen von Meggenhofen](https://upload.wikimedia.org/wikipedia/commons/thumb/6/68/Coat_of_arms_Meggenhofen.svg/800px-Coat_of_arms_Meggenhofen.svg.png "Wappen")
